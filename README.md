@@ -14,3 +14,5 @@ When someone sends a friend invation then they view they could click accept or n
 Robux is a money to spend on dressees or charactrs or faces or pants and everthing
 # CHARACTERS
 Your Player Which Is Allowed To Join The Servers Or Create Servers
+# ROBLOX LINK
+Play Roblox :https://www.roblox.com/
